@@ -1,2 +1,2 @@
-# manuelaugustomtomesgomes.github.io
+# manuelaugusto-gomes.github.io
 Página pessoal de Manuel Augusto Tomás Gomes
